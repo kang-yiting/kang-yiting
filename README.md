@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kang-yiting
+- 👀 I’m interested in writing programs, reading books, and playing badminton
+- 🌱 I’m currently learning write more efficient programs and practice wrist strength
